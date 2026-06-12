@@ -1,5 +1,12 @@
-## if you surround yourself with people who are better than you, 
-## it's a good driver to improve.
+***
+
+# <code style="color: #FF0000; font-size: 22px;">DNI / IWEC</code>
+
+### over 20 and under 13 if idk u  
+### bigots
+### MAP / pedophiles / pro-contact
+
+***
 
 <!--
 **OllieBearman/OllieBearman** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
