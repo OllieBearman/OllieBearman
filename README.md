@@ -1,4 +1,5 @@
-## if you surround yourself with people who are better than you, it's a good driver to improve.
+## if you surround yourself with people who are better than you, 
+## it's a good driver to improve.
 
 <!--
 **OllieBearman/OllieBearman** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
